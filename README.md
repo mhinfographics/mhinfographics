@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Marco @mhinfographics
+- 👀 I’m interested in graphics and visuals
+- 🌱 I’m currently learning pretty much everything 
+- 📫 Reach me out on twitter @TmarcoH
